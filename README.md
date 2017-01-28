@@ -1,2 +1,2 @@
 # TudorAndrei.github.io
-My TTibute page website
+My Tibute page website
